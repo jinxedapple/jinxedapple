@@ -1,4 +1,4 @@
-## Hi there 👋
+## (๑¯◡¯๑)
 
 <!--
 **jinxedapple/jinxedapple** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
